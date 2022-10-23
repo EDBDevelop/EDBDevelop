@@ -1,0 +1,4 @@
+- Hi, I’m @EDBDevelop
+- I Develop games on ROBLOX™
+- I D0 touch grass
+- sometimes
